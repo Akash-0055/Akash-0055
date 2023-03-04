@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Akash-0055.
 - 👀 I’m interested in Cyber Security and Digital Forensic.
-- 🌱 I’m currently learning Basics.
+- 🌱 I’m currently studing B.tech IT.
 - 💞️ I’m looking to collaborate on cyber security.
 - 📫 You can reach me: akashhp202107@gmail.com.
  
